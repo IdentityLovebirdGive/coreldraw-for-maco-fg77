@@ -1,4 +1,4 @@
-# 
+# smart CorelDRAW for macOS Extension | collaboration + version history offers the most advanced CorelDRAW for macOS extension, with collaboration and version history. Ideal for
 
 
 
